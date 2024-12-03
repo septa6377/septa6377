@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @septa6377
-- 👀 I’m interested in technology
+- 👀 I’m interested about technology
 - 🌱 I’m currently learning crypto world
 - 💞️ I’m looking to collaborate on new things in crypto
 - 📫 How to reach me , this place
